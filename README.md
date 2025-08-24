@@ -1,0 +1,1 @@
+# Tips_Hindawi-Generative-AI-Internship
